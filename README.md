@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @Tharunmayav
-- 👀 I’m interested in Gaming
-- 📫 How to reach me @tharunmayav1@gmail.com
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm a kid
+I'm a kiddo with a laptop who has went to "Innova-TN 2024" and "PECHACKS 2.0"
    
   
 
